@@ -1,0 +1,1 @@
+# SKI-Mini-E3-V1.2-Finware-BL-Touch-2.0.9.2
